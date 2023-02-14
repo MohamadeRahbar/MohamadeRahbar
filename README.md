@@ -12,4 +12,4 @@ I'm `Allpha`
 *********************************************************
 ### What I Do ?
 
-For Now , I'm Learning **Html/CSS/JavaScript** 
+For Now , I'm Learning **Html/CSS/JavaScript** at Litech 
