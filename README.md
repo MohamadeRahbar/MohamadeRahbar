@@ -12,4 +12,4 @@ I'm `Allpha`
 *********************************************************
 ### What I Do ?
 
-For Now , I'm Learning **Html/CSS/JavaScript** at Litech 
+For Now , I'm Learning Front End Languages (**Html/CSS/JavaScript**) and some frameworks at [Laitec](https://www.laitec.ir/)
