@@ -12,4 +12,5 @@ I'm `Allpha`
 *********************************************************
 ### What I Do ?
 
-For Now , I'm Learning Front End Languages (**Html/CSS/JavaScript**) and some frameworks (**Bootstrap/Sass/Ajax/Jquery**) at [Laitec](https://www.laitec.ir/)
+For Now , I'm Learning Front End Languages (**Html/CSS/JavaScript**) and some 
+frameworks (**Bootstrap/Sass/Ajax/Jquery**) at [Laitec](https://www.laitec.ir/)
