@@ -4,7 +4,7 @@ Started from __0__ to become __Allpha__ with __Love__
 
 ### Who am I ? 
 
-I'm `Allpha` 
+I'm `Alpha` 
 
 * A CarLover 🏎🚥⛽️
 * A TechLover 💻📡📱
