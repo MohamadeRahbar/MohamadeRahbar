@@ -1,10 +1,10 @@
 # Welcome To My Page 👋🏼
 
-Started from __0__ to become __Allpha__ with __Love__
+Started from __0__ to become __Alpha__
 
 ### Who am I ? 
 
-I'm `Alpha` 
+I'm `Mr.Alpha` 
 
 * A CarLover 🏎🚥⛽️
 * A TechLover 💻📡📱
