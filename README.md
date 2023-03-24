@@ -1,6 +1,6 @@
 # Welcome To My Page 👋🏼
 
-Started from __Love__ of `__Alpha__`
+Started from __Love__ of __`Alpha`__
 
 ### Who am I ? 
 
