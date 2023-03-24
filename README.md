@@ -6,8 +6,8 @@ Started from __0__ to become __Alpha__
 
 I'm `Mr.Alpha` 
 
-* A CarLover 🏎🚥⛽️
 * A TechLover 💻📡📱
+* A CarLover 🏎🚥⛽️
 
 *********************************************************
 ### What I Do ?
