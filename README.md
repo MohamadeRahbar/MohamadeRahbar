@@ -12,6 +12,6 @@ I'm [`Mr.Alpha`](https://t.me/Mohamaderahbar)
 *********************************************************
 ### What I Do ?
 
-Intern at [`CodeBox`](https://github.com/Codebox-ir) ..
-
 To Test Projects, Visit My Personal Website [`MMRAH.IR`](https://mmrah.ir)  ;)
+
+IT Specialist At FARAPARDAZESH PAYA
