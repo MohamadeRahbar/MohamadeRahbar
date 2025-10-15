@@ -14,4 +14,4 @@ I'm [`Mr.Alpha`](https://t.me/Mohamaderahbar)
 
 To Test Projects, Visit My Personal Website [`MMRAH.IR`](https://mmrah.ir)  ;)
 
-IT Specialist At FARAPARDAZESH PAYA
+In Marketing Road At FARAPARDAZESH PAY
