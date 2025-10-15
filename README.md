@@ -15,6 +15,3 @@ I'm [`Mr.Alpha`](https://t.me/Mohamaderahbar)
 To Test Projects, Visit My Personal Website [`MMRAH.IR`](https://mmrah.ir)  ;)
 
 In Marketing Road At FARAPARDAZESH PAY
-
-
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTp6alNzWjV3V2NLZXNsSWNTS0Q0eDV5@193.38.46.40:56713#Ahmad%20OutLine
