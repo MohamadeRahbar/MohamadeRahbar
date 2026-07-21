@@ -1,4 +1,4 @@
-# Hey <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28"> , Welcome To My Page :) 
+# Hey <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28"> , Welcome To My Page 
 
 Started from __Love__ of __`Alpha`__
 
