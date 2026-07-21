@@ -12,6 +12,4 @@ I'm [`Mr.Alpha`](https://t.me/Mohamaderahbar)
 *********************************************************
 ### What I Do ?
 
-To Test Projects, Visit My Personal Website [`MMRAH.IR`](https://mmrah.ir)  ;)
-
-In Marketing Road At FARAPARDAZESH PAY
+Now I'm Working On The Online And Offline Marketing Channels Of [`SHFPP`](https://SHFPP.com) 
