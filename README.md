@@ -12,4 +12,4 @@ I'm [`Mr.Alpha`](https://t.me/Mohamaderahbar)
 *********************************************************
 ### What I Do ?
 
-Now I'm Working On The Online And Offline Marketing Channels Of [`SHFPP`](https://SHFPP.com) And Its Subsets
+As a Marketing And Sales Manager I'm Working On The Online And Offline Marketing Channels Of [`SHFPP`](https://SHFPP.com) And Its Subsets
